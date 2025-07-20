@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **my fav food ( ◑‿◑)ɔ┏🍟--🍔┑٩(^◡^ )**
 
-- 📫 How to reach me **loai,asp97@gmail.com**
+- 📫 How to reach me **loai.asp97@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/loai-mansour-315bb4205/](https://www.linkedin.com/in/loai-mansour-315bb4205/)
 
